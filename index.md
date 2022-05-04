@@ -1,4 +1,4 @@
-## CHATT PREP
+## 3 REASONS WHY CHATT PREP IS A GOOD SCHOOL TO GO TO.
 
 You can use the [editor on GitHub](https://github.com/joinithuXxxhhahahxxX/Chatt-Prep/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
 
